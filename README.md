@@ -25,7 +25,7 @@ Description.
 
 this game's - truly never really counts to self
 when the bodies fall fewer doubts're playin off 
-get it now, please-fame for people way too dull so 
+of the cup - please-fame for people way too dull so  --- get it now
 do it for yourself not other people's shady rules
 
 truce for the single-minded brother hauls
@@ -37,7 +37,7 @@ too fast too fast makes you trip
 slow down slow down your only drip
 make up make up stories for the sick
 it's their dreams you want, get them rich
-
+i never gonna 
 
 
 
