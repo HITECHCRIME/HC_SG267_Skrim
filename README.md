@@ -10,7 +10,7 @@ Description.
 
 > **Title:** Skrim / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:**  / **Lyrics:** MOTHNODE
 
 > **Beat:** NetuH https://www.youtube.com/watch?v=qeWK18IoyIc
 
