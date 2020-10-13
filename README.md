@@ -26,12 +26,12 @@ Description.
 this game's - truly never really counts to self
 when the bodies fall fewer doubts're playin off 
 get it now, please-fame for people way too dull so 
-do it for yourself not other people's rules
+do it for yourself not other people's shady rules
 
 truce for the single-minded brother hauls
 don't you know i open doors for the blinded ones
 careless till you see the what is what and yet
-the secrets can make you rush
+the secrets can make you rush like a fool
 
 too fast too fast makes you trip
 slow down slow down your only drip
