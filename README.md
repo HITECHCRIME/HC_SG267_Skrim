@@ -8,7 +8,7 @@
 
 Description.
 
-> **Title:**  / **Featuring:** MOTHNODE
+> **Title:** Skrim / **Featuring:** MOTHNODE
 
 > **Production:**  / **Lyrics:** 
 
