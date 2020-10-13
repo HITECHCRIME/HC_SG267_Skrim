@@ -30,8 +30,8 @@ do it for yourself not other people's shady rules
 
 truce for the single-minded brother hauls
 don't you know i open doors so often for the blinded ones
-you'll be careless till you see the what is what and yet
-the secrets can make you rush like a fool
+scared you'll be careless till you see the what is what
+and yet the secrets can make you rush like a fool
 
 too fast too fast makes you trip
 slow down slow down your only drip
