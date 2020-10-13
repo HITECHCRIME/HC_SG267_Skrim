@@ -33,6 +33,8 @@ don't you know i open doors so often for the blinded ones
 you're so scared to breath, careless till you see what is what
 and yet the secrets can make you rush like a fool
 
+what is worth the secret's fee
+
 too fast too fast makes you trip
 slow down slow down your only drip
 make up make up stories for the sick
