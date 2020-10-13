@@ -28,9 +28,9 @@ when the bodies fall fewer doubts're playin off
 of the cup - please-fame for people way too dull so  --- get it now
 do it for yourself not other people's shady rules
 
-truce for the single-minded brother hauls
+it's a truce for the single-minded brother hauls
 don't you know i open doors so often for the blinded ones
-scared you'll be careless till you see the what is what
+you're so scared to breath, careless till you see what is what
 and yet the secrets can make you rush like a fool
 
 too fast too fast makes you trip
