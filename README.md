@@ -25,8 +25,11 @@ Description.
 
 this game's - truly never really counts to self
 when the bodies fall fewer doubts're playin off 
-of the cup - please-fame for people way too dull so  --- get it now
-do it for yourself not other people's shady rules
+of the cup - please-fame for people way too dull 
+dis-dain for following other people's rules
+
+so  --- get it now
+do it for yourself not other 
 
 it's a truce for the single-minded brother hauls
 don't you know i open doors so often for the blinded ones
